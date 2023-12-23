@@ -1,0 +1,1 @@
+# zakuroishikuro.github.io
